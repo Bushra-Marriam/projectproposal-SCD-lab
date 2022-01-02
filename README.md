@@ -1,1 +1,0 @@
-# projectproposal-SCD-lab
